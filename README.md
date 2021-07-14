@@ -1,0 +1,1 @@
+# S32K144-External-Signal-Utilitating-with-Automatic-Plants-Care-System
